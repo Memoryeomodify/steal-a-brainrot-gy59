@@ -1,4 +1,4 @@
-
+Get ahead in steal a brainrot with top steal a brainrot Scripts, featuring auto-collect and aimbot. Download now to dominate every match with ease and confidence, thanks to its
 
 
 
